@@ -1,1 +1,1 @@
-# devdamdang.github.io
+# devdamdang.com
